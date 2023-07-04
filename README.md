@@ -1,0 +1,2 @@
+# FadliPratama_38_202131127_HeldaKurniaSari_A
+Removal Background
